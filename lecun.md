@@ -1,3 +1,3 @@
-TA 2018 Winner: Yan LeCun
+TA 2018 Winner: Yann LeCun
 
 dagugxfugnxusdd **sgyuwn**
